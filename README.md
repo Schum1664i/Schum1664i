@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Schum1664
+- 👋 Hi, I’m @Schumi1664
 - 👀 I’m interested in... Tout 
 - 🌱 I’m currently learning ...  Kali
 - 💞️ I’m looking to collaborate on ...
